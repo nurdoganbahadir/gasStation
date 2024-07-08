@@ -1,0 +1,1 @@
+Bu içerik Türkçe'dir.
